@@ -8,8 +8,8 @@
 
 ##### Some Interests
 
-Love hearing about conspiracy theories and challenges to the status quo of what we call reality. Also like topics around aliens, ancient history, and more.
-Outdoors >>>
-Philosophy is cool too, the way we think is all that this world can be
+Love hearing about conspiracy theories and challenges to the status quo of what we call reality. Also like topics around aliens, ancient history, and more.  
+Outdoors >>>  
+Philosophy is cool too, the way we think is all that this world can be  
 
 _Most of my work is private right now since I recently cleaned up my profile. These were just random small projects and repos anyway for the most part._
