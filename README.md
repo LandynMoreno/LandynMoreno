@@ -6,7 +6,7 @@
 - Learning about history, listening to podcasts, watching sports, and navigating life
 - Writing more code than ever before
 
-##### Some Interests
+
 
 Love hearing about conspiracy theories and challenges to the status quo of what we call reality. Also like topics around aliens, ancient history, and more.  
 Outdoors >>>  
